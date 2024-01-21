@@ -1,5 +1,5 @@
-Here you can say lots of fun things about your site.
+This is my first attempt at making a blog. I hope to publish some stuff about the things that go through my head.
 
-Maybe say a some things about yourself.
+Name's judi. Pronouns are she/her. Age's 23. I was born December 4th 2000. I am shy and reserved, probably due to being autistic and having ADHD, and them being undiagnosed until recently. My interests are varied, and include Japanese history and language, language learning, computer science, writing, reading, art, physics, videogames, content creation, politics, and much, much more.
 
-Or maybe what you plan to blog about.
+I hope you find my thoughts pleasant.
